@@ -1,1 +1,0 @@
-# blindar-da-mente
